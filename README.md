@@ -22,6 +22,7 @@ https://www.notion.so/265140e3f62a80ecabd2c27fdf67570c
 ## 유트브 시연 동영상 파일
 
 
+https://www.youtube.com/watch?v=k6RSWQq0Il0
 
 
 ## 프로젝트 진행 소감 및 후기
